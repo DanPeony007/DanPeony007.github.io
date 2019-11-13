@@ -27,19 +27,20 @@
 - 古天乐
 - 严屹宽
 #### 女演员
-- 刘诗诗
 - 赵丽颖
 - 杨紫
+- 刘诗诗
 
 ### 我喜欢的动漫
 1. 学园奶爸
+2. 夏目友人帐
+3. 天行九歌
+
 #### 萌萌哒虎太郎
 [虎太郎也太可爱了吧！每一张都是萌萌哒！](https://baijiahao.baidu.com/s?id=1612639267377874343&wfr=spider&for=pc) 
 
-2. 夏目友人帐
 #### 夏目和猫咪老师
-[夏目友人帐：猫咪老师为何留在夏目身边？这个4个原因揭露了一切](https://baijiahao.baidu.com/s?id=1640351098070087134&wfr=spider&for=pc)
+[夏目友人帐：猫咪老师为何留在夏目身边？](https://baijiahao.baidu.com/s?id=1640351098070087134&wfr=spider&for=pc)
 
-3. 天行九歌
-#### 看流沙聚散
-[天行九歌：流沙成员结局，但是新加入的他们让人惊讶](https://baijiahao.baidu.com/s?id=1616206479520594168&wfr=spider&for=pc) 
+#### 聚散流沙
+[天行九歌：看流沙聚散，回首天涯路远](https://baijiahao.baidu.com/s?id=1616206479520594168&wfr=spider&for=pc) 
